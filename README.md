@@ -1,0 +1,1 @@
+# Rate-of-Warming-in-Northern-Ghana.
